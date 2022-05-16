@@ -1,6 +1,6 @@
 **Home**
 
->   Update Log of &nbsp;[yuany3721.top](yuany3721.top)
+>   Update Log of &nbsp;[yuany3721.top](http://yuany3721.top)
 
 **站点 更新日志**
 
